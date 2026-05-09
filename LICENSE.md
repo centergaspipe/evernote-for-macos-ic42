@@ -1,4 +1,4 @@
-
+Enhance Evernote for macOS with Evernote for macOS best Extension: collaboration & AI assistant, the #1 extension. Includes collaboration and AI assistant for a smoother
 
 
 
